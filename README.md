@@ -9,7 +9,7 @@ https://www.kbj365.com
 
 https://www.kbj51.com
 
-http://www.kbj51.net
+https://www.kbj51.net
 
 https://www.kbj99.net
 
