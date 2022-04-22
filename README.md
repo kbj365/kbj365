@@ -18,4 +18,4 @@ https://www.kbc91.com
 https://www.kbj66.com
 
 
-If all domains were blocked in your side. please feedback to  koreanbj365@hotmail.com.
+
