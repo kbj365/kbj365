@@ -3,6 +3,8 @@
 
 You can choose one of them to visit
 
+http://www.kbj100.com (new)
+
 https://www.kbjme.com 
 
 https://www.kbj365.com 
