@@ -1,7 +1,7 @@
 
 Asian Webcam |Korean BJ |Asian Amateur |FC2 Webcam . Updated daily！You can choose one of them to visit
 
-https://kam19.top
+https://kam19.top  （fast）
 
 https://www.kam99.com
 
