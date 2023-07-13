@@ -5,15 +5,9 @@ https://www.kam19.top (new)
 
 https://www.kbj100.com 
 
-https://www.kbj11.com 
-
 https://www.kbj77.com 
 
-https://www.kbjme.com 
-
 https://www.kbj51.com
-
-https://www.kbj51.net
 
 https://www.kbj99.net
 
