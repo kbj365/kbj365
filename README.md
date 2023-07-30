@@ -4,7 +4,8 @@ Notice: The domain name is being migrated, please use the new domain name to acc
 
 Asian Webcam |Korean BJ |Asian Amateur |FC2 Webcam . Updated daily！
 
-https://www.kam18.top
+https://kam18.top
+
 
 
 
